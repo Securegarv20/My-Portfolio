@@ -49,6 +49,6 @@ Feel free to reach out—I’m always happy to talk tech, collaborate, or even h
 
 - **LinkedIn**: [Garv Kamra](https://www.linkedin.com/in/garvkamra/)
 - **Instagram**: [@SecureGarv](https://www.instagram.com/itsjustmegarv/)
-- **Email**: your.garvkamra24@gmail.com
+- **Email**: garvkamra24@gmail.com
 
 ---
